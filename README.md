@@ -1,4 +1,4 @@
 
 Enéas Carneiro: The Life and Ideology of a National Icon
-23 fontes
+
 O texto apresenta uma biografia detalhada de Enéas Carneiro, destacando sua trajetória desde a infância pobre no Acre até se tornar uma figura icônica da política brasileira. A narrativa enfatiza sua brilhante formação acadêmica em medicina e ciências exatas, contrastando sua erudição com o estilo explosivo de suas campanhas eleitorais pelo PRONA. As fontes exploram a transição ideológica de Enéas, que abandonou o marxismo juvenil para defender um nacionalismo conservador e um Estado tecnocrata e intervencionista. Além de relembrar propostas polêmicas, como a construção da bomba atômica e a crítica ao sistema financeiro, o conteúdo analisa seu legado para a extrema direita contemporânea. O relato encerra descrevendo sua vitória histórica como deputado federal e sua batalha final contra a leucemia.
